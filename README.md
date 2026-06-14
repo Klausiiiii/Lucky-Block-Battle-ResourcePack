@@ -1,1 +1,1 @@
-Cool
+Lucky Block Battle Resourcepack
